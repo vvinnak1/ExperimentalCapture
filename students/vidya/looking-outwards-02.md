@@ -1,0 +1,1 @@
+For my second report, I looked into sculptors since I find this medium of art very engaging. One of the sculptors that stood out to me was Jhonson Tsang.I like his idea of using human babies to show an expressive side.
